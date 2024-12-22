@@ -1,5 +1,5 @@
 ## Hi there 👋
-🌱 I am currently studying of Industrial Information Technology at LAB university in Lahti 
+🌱 I am currently studying of Industrial Information Technology at LAB university in Lahti, Finland
 
 I am interested on new technologies and sustaniability. However I dont have a backround of studies in this field.
 
